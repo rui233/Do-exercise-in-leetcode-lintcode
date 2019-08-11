@@ -1,2 +1,2 @@
 
-a recording of pratice
+a recording of practice
